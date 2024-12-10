@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MCRecruiterBol  
+- 👀 I’m interested in connecting talented IT professionals with exciting job opportunities, particularly in Bolivia and Latin America.  
+- 🌱 I’m currently learning new strategies to enhance IT recruitment processes and improve my English skills to connect globally.  
+- 💞️ I’m looking to collaborate on innovative recruitment strategies and building strong tech communities.  
+- 📫 How to reach me: You can contact me on LinkedIn or via email at melby.carrion@1950Labs.com  
+- 😄 Pronouns: She/Her (or any you'd prefer).  
+- ⚡ Fun fact: I enjoy exploring creative ways to make recruitment fun and engaging! 
